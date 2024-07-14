@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **vivek6306619@gmail.com**
 
-- ⚡ Nature **Be Real, Spiritual,calm**
+- ⚡ Nature **Be Real, Spiritual and calm**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
